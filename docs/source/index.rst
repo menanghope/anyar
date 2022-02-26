@@ -7,3 +7,4 @@ Sayangnya, meskipun game ini tersedia gratis di Play Store serta App Store, teta
 Hal ini karena game Higgs Domino yang sudah dimodifikasi menjanjikan fitur yang lebih lengkap dan semua item di dalamnya tersedia secara gratis dan bisa digunakan tanpa harus membayar atau membeli apapun. Pemain dengan dana terbatas biasanya lebih memilih versi modifikasinya.
 
 Satu Aplikasi yang Berisi Banyak Jenis Game
+yang mana bagus untuk di kembangkan
